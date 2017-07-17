@@ -1,2 +1,0 @@
-# jfeierabend.github.io
-studilicious
